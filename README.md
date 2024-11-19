@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @pramansh
 - 👀 I’m interested in creating vision and content 
-- 🌱 I’m currently learning hot to build 
+- 🌱 I’m currently learning how to build 
 - 💞️ I’m looking to collaborate on any social media platform 
 - 📫 How to reach me https://www.instagram.com/pramansh_?igsh=aGp5MmVvNXE4dWY5
 - 😄 Pronouns: Parmaaaa>>>>>>>ansh 
